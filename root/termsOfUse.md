@@ -1,1 +1,0 @@
-Hello terms of use
